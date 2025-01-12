@@ -42,7 +42,7 @@ Dedicated to delivering high-quality solutions tailored to meet modern web appli
 ---
 
 ## 📫 Let's Connect!
-- 🌐 [LinkedIn](https://linkedin.com/in/Aram119011)
+- 🌐 [LinkedIn](https://www.linkedin.com/in/aram-soghomonyan/)
 - ✉️ [Email](aram.soghomonyan94@gmail.com)
 
 ---
